@@ -1,0 +1,1 @@
+ritvik is at mckinsey
